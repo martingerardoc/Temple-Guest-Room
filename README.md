@@ -7,3 +7,5 @@
 > **"In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost."**
 >
 > — President Russell M. Nelson
+>
+> *Selected and contributed by Martin Cespedes.*
