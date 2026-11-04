@@ -8,4 +8,9 @@
 >
 > — President Russell M. Nelson
 >
-> *Selected and contributed by Martin Cespedes.*
+> _Selected and contributed by Martin Cespedes._
+
+> **"I would go and do the things which the Lord had commanded for I know that the Lord giveth no commandments unto the children of men save He shall prepare a way that they may accomplish the things which He commandeth."**
+
+> 1Nephi 3:7
+> _Contributed by Akuegbo Iheanyi Ejeagba_
