@@ -14,3 +14,9 @@
 
 > 1Nephi 3:7
 > _Contributed by Akuegbo Iheanyi Ejeagba_
+
+> **"Great things are done by a series of small things brought together."**
+>
+> — Vincent van Gogh
+>
+> _Contributed by Sairi Conejo Flores_
